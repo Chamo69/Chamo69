@@ -11,6 +11,8 @@
 - 🧑‍🎓 I’m an Undergraduate at **IMBS Green Campus**
 
 - 📫 How to reach me **chamodhbhanuka@gmail.com**
+
+- 🌍 Find me on [GitHub](https://github.com/Chamo69)
   
 - ⚡ Fun fact **Call me as YOYO**
 
